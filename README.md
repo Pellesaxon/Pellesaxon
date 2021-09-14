@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Pellesaxon
+- 🌱 I’m going to studdying computer science at Uppsala Univeristy 
+- 📫 Don't call me or try to contact me in any way
